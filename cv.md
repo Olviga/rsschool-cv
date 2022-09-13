@@ -70,4 +70,3 @@ April 1994 - April 2012 Accountant/Chief Accountant
 * **High Scool Dyploma** - Economist - Accounting economic analysis and audit - Saint-Petersburg State University of Economiks - 2006
 
 ## References available on request ##
-
